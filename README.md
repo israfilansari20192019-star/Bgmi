@@ -8,3 +8,4 @@ be hmm na GN
 ha gm na hmm
 ha GN na
 na FB n
+ky hmm n na
