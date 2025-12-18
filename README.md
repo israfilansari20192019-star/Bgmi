@@ -10,3 +10,4 @@ ha GN na
 na FB n
 ky hmm n na
 ng hmm nn
+turur7
